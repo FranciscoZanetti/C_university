@@ -1,1 +1,0 @@
-Por las dudas correr primero el proceso panel, no tuve tanto tiempo, perdon por la falta de comentarios, no llegue
